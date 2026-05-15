@@ -1,4 +1,4 @@
-# 
+# Get the ultimate nft trading bot with professional nft trading bot | wash-trading-detection + snipe-list-management. Featuring wash-trading-detection and snipe-list-management,
 
 
 
